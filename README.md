@@ -11,4 +11,3 @@ __Where__ ever you go,
 Where ever you are,
 I just look at the **sky**,
 And search for the Most Beautiful Star ....
-
